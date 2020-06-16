@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ultralearning: Directness
+title: Ultralearning - Directness
 ---
 I just finished Scott H. Young's 'Ultralearning'. I want to share one of his principles of 'Ultralearning' (Ultralearning is his name for a kind of aggressive, self-directed skill acquisition).
 
