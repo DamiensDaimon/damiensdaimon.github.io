@@ -7,6 +7,7 @@ I want to talk about work for a minute. Careers are important, that much is obvi
 
 That's what I want to talk about - not picking one at random, because it sounds good or sounds good to your mum. Being able to make confident choices when the economic situation seems increasingly unclear.
 
+<br>
 
 None of my friends understand how building a career works. My parents don't. Actually, it looks to me like *nobody* has a real, tested model of how to make decisions about this kind of thing. Even successful people often seem to have stumbled into their role, or not be aware how lucky they got.
 
@@ -16,6 +17,7 @@ Put simply, I don't accept the common model of work and careers, because I find 
 
 So it's time, as is often best when conventional wisdom doesn't cut it, to figure it out for myself.
 
+<br>
 
 I'll probably explore this topic in depth, but for now let me lay down my guiding principle. My ethos is that you should spend your time doing valuable things. That's all. It's very simple, but it gets lost in the noise.
 
@@ -34,6 +36,7 @@ If you have any feeling at all that the world has problems to solve, you should 
 
 I'm not saying there's anything wrong with working a 'basic' job, but you should never sacrifice your capacity as a thinking being.
 
+<br>
 
 I guess it remains to be seen how this view pans out for me; maybe, my posts a few years down the line will show how I'm doing.
 
@@ -53,5 +56,6 @@ For me, I don't know exactly know what form the work I end up doing will be. But
 
 It's not an instant answer; it's a guiding star. And it's best with an understanding that the individual view of the world, the ability to make decisions for yourself about what's important is vital to life.
 
+<br>
 
 I'll probably write more on this; I'll probably revise this post later too, which for the moment is looking pretty rambley and thrown-together. Next time I want to start thinking more concretely about what work is good - what kind of work the world needs and that we can give - and how to do it. How to do better work. Alright, thanks for reading - hope it was helpful :)
