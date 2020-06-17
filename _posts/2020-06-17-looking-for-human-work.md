@@ -29,7 +29,7 @@ But this presupposes you've already learnt to see the world through your own eye
 
 The common view of work leads to a totally artless world. I think it's responsible for a lot of the meaninglessness people feel. This is a romantic notion, and it might be construed as the more unrealistic one that everyone should be a scientist or artist.
 
-Trust thyself*. Focus on doing good work; monetary recompense will likely come later, and even if it doesn't you will have the knowledge that you spent your time doing something real. I guess it might be a matter of how of an idealist you are, whether you're willing to take the risk.
+*Trust thyself*. Focus on doing good work; monetary recompense will likely come later, and even if it doesn't you will have the knowledge that you spent your time doing something real. I guess it might be a matter of how of an idealist you are, whether you're willing to take the risk.
 But we *do* need people to take the risk. The established institutions, the established pathways, can only do so much to better you and the world. The establishment has blindspots; people who can identify what work needs to be done on their own are needed to help solve problems existing jobs can't.
 
 If you have any feeling at all that the world has problems to solve, you should understand becoming another cog in the machine does little to help. If you have any feeling at all the you have aspirations not fulfilled by your proscribed place, you should consider what it is you really want out of your work.
