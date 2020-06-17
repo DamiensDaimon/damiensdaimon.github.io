@@ -12,4 +12,5 @@ This is a great tool because it cuts through the abstractions that often surroun
 
 It's corollary is another principle; Feedback. People acquire skills - especially motor skills - by performing an action and adjusting to stimuli. You could make an argument that most techniques employed in skill acquisition are just ways of adjusting attention to receive better feedback information. Your brain tunes a skill much, much faster when it is immediately given feedback.
 
-Definitely recommend this book; very strongly reflected my memories of the most productive periods of learning in my life.
+
+Interesting book; very strongly reflected my memories of the most productive periods of learning in my life.
