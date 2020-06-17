@@ -3,33 +3,30 @@ layout: post
 title: Looking for Human Work
 ---
 
-I want to talk about work for a minute. Careers are important, that much is obvious. I'm a recent high school graduate; the choice is stretched out before me, but the educational institutions I grew up in have given me basically no direction. That's alright - I'm happy to make the decision myself.
+Careers are important, that much is obvious. I'm a recent high school graduate; the choice is stretched out before me, but the educational institutions I grew up in have given me basically no direction. That's alright - I'm happy to make the decision myself.
 
-That's what I want to talk about - not picking one at random, because it sounds good or sounds good to your mum. Being able to make confident choices when the economic situation seems increasingly unclear.
+That's what I want to talk about - not picking one at random, because it sounds good or sounds good to your mum. Being able to make confident choices when the situation seems increasingly unclear.
 
 <br>
 
-None of my friends understand how building a career works. My parents don't. Actually, it looks to me like *nobody* has a real, tested model of how to make decisions about this kind of thing. Even successful people often seem to have stumbled into their role, or not be aware how lucky they got.
+None of my friends understand how building a career works. My parents don't. Actually, it looks to me like almost *nobody* has a real, tested model of how to make decisions about this kind of thing. Even successful people often seem to have stumbled into their role, or not be aware how lucky they got.
 
-Doing creative work is really risky. This is what you'll be told if you consider being a painter rather than a marketing manager. I can't say I know that's wrong; but why is work treated as something unreliable, scary and burdensome?
+Doing creative work is really risky. This is what you'll be told if you consider being a painter rather than a marketing manager. I can't say I know that's wrong; but why is work treated as something unreliable, scary and burdensome? Conflicting opinions abound on this and just about every other thing a young person might want to know about their career options.
 
-Put simply, I don't accept the common model of work and careers, because I find menial labour dehumanizing. Common views on work tend to pressure us into choosing roles without giving the critical thinking tools or information to escape what is often a false dichotomy. Even movements that specifically counter the 'put your head down and get a marketing degree' narrative, like Gary Vee-esque hustle culture, seem misguided to me. Equally ungrounded.
+Put simply, I don't accept the common model of work and careers, because I find menial labour dehumanizing. Common views on work tend to pressure us into choosing roles without giving the critical thinking tools or information to escape what is often a false dichotomy. Equally bad are the entrepreneur gurus, who flood discussion with criticism of the university -> job model but peddle a false aspirational ideal that's equally rooted in a shortsighted view of work. 
 
 So it's time, as is often best when conventional wisdom doesn't cut it, to figure it out for myself.
 
 <br>
 
-I'll probably explore this topic in depth, but for now let me lay down my guiding principle. My ethos is that you should spend your time doing valuable things. That's all. It's very simple, but it gets lost in the noise.
+I'll probably explore this topic in depth, but for now let me lay down my guiding principle. My ethos is that you should spend your time doing valuable things. That's all. It's very simple, but it gets lost in the noise. And I mean intrinsically valuable things, not things that your mum or your bank value. This definition's a little fuzzy, sure, but it's infinitely preferable to a view that makes you a tool of other people. The point of my view is to shift the focus away from collective value, to lend backbone to an endeavour to live by personal value. 
 
-The intrinsic value of an activity is often forgotten when the market doesn't value it highly. I think the ideal way to live is to do work that grows you as a person and helps others. That's not always possible, but wherever it is that's the option you should take. Concessions may have to be made, to keep eating, to keep a roof over your head.
-
-Some people work for their living, and do what they really like in their free time. It seems like an unfortunate fact of work that not everyone can do what they like. We don't live in a utopia, and people are needed to do menial work. It seems a necessary concession to the market for many people.
-
-But this presupposes you've already learnt to see the world through your own eyes; you need to be able to tell why mass opinion runs the way it does. Often it's wrong.
+Many people hold a sentiment to the effect of wanting to 'pursue their passion', without being able to commit to it. People just don't seem to be able to reconcile this. Perhaps this is because their goals are framed as something they want to be, not something they want to do. Decisions are made about what kind of worker they will be - not what kind of thing they will spend their time doing.
 
 The common view of work leads to a totally artless world. I think it's responsible for a lot of the meaninglessness people feel. This is a romantic notion, and it might be construed as the more unrealistic one that everyone should be a scientist or artist.
 
 *Trust thyself*. Focus on doing good work; monetary recompense will likely come later, and even if it doesn't you will have the knowledge that you spent your time doing something real. I guess it might be a matter of how of an idealist you are, whether you're willing to take the risk.
+
 But we *do* need people to take the risk. The established institutions, the established pathways, can only do so much to better you and the world. The establishment has blindspots; people who can identify what work needs to be done on their own are needed to help solve problems existing jobs can't.
 
 If you have any feeling at all that the world has problems to solve, you should understand becoming another cog in the machine does little to help. If you have any feeling at all the you have aspirations not fulfilled by your proscribed place, you should consider what it is you really want out of your work.
