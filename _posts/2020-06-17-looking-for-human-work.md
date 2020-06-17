@@ -7,6 +7,7 @@ I want to talk about work for a minute. Careers are important, that much is obvi
 
 That's what I want to talk about - not picking one at random, because it sounds good or sounds good to your mum. Being able to make confident choices when the economic situation seems increasingly unclear.
 
+
 None of my friends understand how building a career works. My parents don't. Actually, it looks to me like *nobody* has a real, tested model of how to make decisions about this kind of thing. Even successful people often seem to have stumbled into their role, or not be aware how lucky they got.
 
 Doing creative work is really risky. This is what you'll be told if you consider being a painter rather than a marketing manager. I can't say I know that's wrong; but why is work treated as something unreliable, scary and burdensome?
@@ -14,6 +15,7 @@ Doing creative work is really risky. This is what you'll be told if you consider
 Put simply, I don't accept the common model of work and careers, because I find menial labour dehumanizing. Common views on work tend to pressure us into choosing roles without giving the critical thinking tools or information to escape what is often a false dichotomy. Even movements that specifically counter the 'put your head down and get a marketing degree' narrative, like Gary Vee-esque hustle culture, seem misguided to me. Equally ungrounded.
 
 So it's time, as is often best when conventional wisdom doesn't cut it, to figure it out for myself.
+
 
 I'll probably explore this topic in depth, but for now let me lay down my guiding principle. My ethos is that you should spend your time doing valuable things. That's all. It's very simple, but it gets lost in the noise.
 
@@ -32,6 +34,7 @@ If you have any feeling at all that the world has problems to solve, you should 
 
 I'm not saying there's anything wrong with working a 'basic' job, but you should never sacrifice your capacity as a thinking being.
 
+
 I guess it remains to be seen how this view pans out for me; maybe, my posts a few years down the line will show how I'm doing.
 
 How does this apply, for example, to me? A few things. Wealth has little intrinsic value to me. Freedom does, which means I need enough wealth to maintain it. My natural dispositions mean that I enjoy work which involves learning and combining different skillsets, working with complex and insoluble abstract problems, picking out broad principles and mediating between different perspectives.
@@ -48,4 +51,7 @@ For me, that starting point is 'I want to become a strong, critical but adventur
 
 For me, I don't know exactly know what form the work I end up doing will be. But I'm beginning to try different things, and I'm setting myself up by developing skills I know will be important. I plan to make a focused practice of the craft of writing and communication, because writing is valuable (and vital) no matter what kind of thinking work you're doing.
 
-I'll probably write more on this; I'll probably revise this post later too, which for the moment is looking pretty rambley and thrown-together. Hope the perspective was useful.
+It's not an instant answer; it's a guiding star. And it's best with an understanding that the individual view of the world, the ability to make decisions for yourself about what's important is vital to life.
+
+
+I'll probably write more on this; I'll probably revise this post later too, which for the moment is looking pretty rambley and thrown-together. Hope the perspective is useful.
