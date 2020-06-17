@@ -54,4 +54,4 @@ For me, I don't know exactly know what form the work I end up doing will be. But
 It's not an instant answer; it's a guiding star. And it's best with an understanding that the individual view of the world, the ability to make decisions for yourself about what's important is vital to life.
 
 
-I'll probably write more on this; I'll probably revise this post later too, which for the moment is looking pretty rambley and thrown-together. Hope the perspective is useful.
+I'll probably write more on this; I'll probably revise this post later too, which for the moment is looking pretty rambley and thrown-together. Next time I want to start thinking more concretely about what work is good - what kind of work the world needs and that we can give - and how to do it. How to do better work. Alright, thanks for reading - hope it was helpful :)
